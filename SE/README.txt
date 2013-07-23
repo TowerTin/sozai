@@ -1,4 +1,7 @@
 ﻿http://taira-komori.jpn.org/freesounden.html
+
+http://maoudamashii.jokersounds.com/list/se11.html
+
 から素材をいただきました
 
 
