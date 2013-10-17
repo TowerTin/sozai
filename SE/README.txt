@@ -16,6 +16,9 @@ http://www.zero-matter.com/snd/sn07/
 効果音源
 http://koukaongen.com/
 
+効果音ラボ
+http://soundeffect-lab.info/sound/emotion/
+
 から素材をいただきました
 
 
